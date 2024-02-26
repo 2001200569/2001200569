@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @2001200569 o Trigo
+- 👀 I’m interested in be better
+- 🌱 I’m currently learning how to be better
+- 💞️ I’m looking to collaborate on be better
+- 📫 How to reach me unreachable
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am almost 7ft
